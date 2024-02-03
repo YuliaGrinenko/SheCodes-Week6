@@ -1,2 +1,0 @@
-# SheCodes-Week6
- 
